@@ -1,1 +1,0 @@
-# sintezari.github.io
